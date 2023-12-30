@@ -5,3 +5,4 @@ https://www.youtube.com/watch?v=RucPk7Zwny0&list=RDRucPk7Zwny0&start_radio=1&rv=
 https://www.youtube.com/watch?v=mZHy4ypp3X0&list=RDmZHy4ypp3X0&start_radio=1&rv=mZHy4ypp3X0&t=1 ● 《Hillsong–Wake》歌詞翻譯【中英字幕】
 https://www.youtube.com/watch?v=2iBO5wKm0LY ●  Late night Chinese playlist
 https://www.youtube.com/watch?v=mmipP3AxTyE ●  Stay
+https://www.youtube.com/watch?v=HQDDlgGy2hg&list=RDiR964FRowgA&index=25 ●  沒了妳
